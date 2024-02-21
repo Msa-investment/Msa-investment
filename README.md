@@ -7,8 +7,10 @@ Full-time Frontend Developer roles: I'm actively seeking a challenging and rewar
 Open-source contributions: I'm always looking for interesting projects to contribute to and collaborate with other developers.
 Freelance projects: I'm open to discussing freelance projects that align with my skills and interests.
 - 📫 How to reach me :
-
-Email: muhammadshuaibualhassan91@gmail.com
+- linkedin : https://www.linkedin.com/in/muhammad-shuaibu-alhassan-1849462a1/
+- Email: muhammadshuaibualhassan91@gmail.com
+- instagram: msa_investment
+- whatsapp: +234 9030173650
 I'm excited to hear from you!
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
